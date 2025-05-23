@@ -1,4 +1,7 @@
-# dumb-days
+# Dumb-Days
+
+![Image](https://github.com/user-attachments/assets/5167a82f-6495-4c53-8a8f-bf6f6a26f37e)
+
 Welcome to the official archive of my *Dumb Days* streams!
 
 This repository collects links to all my live sessions, where I dive into the wild world of Web3 security, blockchain coding (Solidity, Vyper, Rust, and more), and crypto shenanigans. Expect chaotic coding, deep dives into smart contract audits, contest recaps, and plenty of reading of security reports.
