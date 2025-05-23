@@ -12,23 +12,23 @@ Whether you’re here for the tech, the vibes, or the occasional crypto roast, j
 
 Here are the links to all the streams I’ve done so far! 
 
-dumb days #1: https://x.com/iamthesvn/status/1895618901767307587
+Dumb Days #1: https://x.com/iamthesvn/status/1895618901767307587
 
-dumb days #2: https://x.com/iamthesvn/status/1896017447419068850
+Dumb Days #2: https://x.com/iamthesvn/status/1896017447419068850
 
-dumb days #3: https://x.com/iamthesvn/status/1896366795306762583
+Dumb Days #3: https://x.com/iamthesvn/status/1896366795306762583
 
-dumb days #4: https://x.com/iamthesvn/status/1896735288506106006
+Dumb Days #4: https://x.com/iamthesvn/status/1896735288506106006
 
-dumb days #5: https://x.com/iamthesvn/status/1897097449984156050
+Dumb Days #5: https://x.com/iamthesvn/status/1897097449984156050
 
-dumb days #6: https://x.com/iamthesvn/status/1897827504402186699
+Dumb Days #6: https://x.com/iamthesvn/status/1897827504402186699
 
-dumb days #7: https://x.com/iamthesvn/status/1898212144778522690
+Dumb Days #7: https://x.com/iamthesvn/status/1898212144778522690
 
-dumb days #8: https://x.com/iamthesvn/status/1902197853214437621
+Dumb Days #8: https://x.com/iamthesvn/status/1902197853214437621
 
-dumb days #9: https://x.com/iamthesvn/status/1902782569130979823
+Dumb Days #9: https://x.com/iamthesvn/status/1902782569130979823
 
 After having done the above 9 streams, I reflected a bit on what I could improve. And decided to improve the following:
 https://x.com/iamthesvn/status/1903400094533390341
