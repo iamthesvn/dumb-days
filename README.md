@@ -40,3 +40,4 @@ After completing 9 streams focused on learning Vyper and honing Web3 security sk
 | Dumb Days #19    | [Pre-Stream Log](https://x.com/iamthesvn/status/1909282735606157711) | [Stream](https://x.com/iamthesvn/status/1909284281509462120) |
 
 
+I will keep adding new links as I stream more.
